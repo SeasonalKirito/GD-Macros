@@ -18,5 +18,5 @@ https://absolllute.com/store/view_mega_hack_pro
 ```
 Name - Sakupen Circles
 ID - 76962930
-Diffuculty - This is a EXTREME DEMON
+Diffuculty - EXTREME DEMON
 ```
