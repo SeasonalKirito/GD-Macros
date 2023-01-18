@@ -11,3 +11,8 @@ BUY MEGA HACK HERE
 ```html
 https://absolllute.com/store/view_mega_hack_pro
 ```
+
+
+# Macros
+
+Sakupen Circles - 76962930 - This is a EXTREME DEMON
