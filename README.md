@@ -5,12 +5,3 @@ YOU NEED MEGA HACK TO USE THIS, Mega Hack V7 costs 5 dollars "Its worth it", BUY
 ```html
 https://absolllute.com/store/view_mega_hack_pro
 ```
-
-
-# Macros
-
-```
-Name - Sakupen Circles
-ID - 76962930
-Diffuculty - EXTREME DEMON
-```
