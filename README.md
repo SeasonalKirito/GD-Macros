@@ -15,4 +15,8 @@ https://absolllute.com/store/view_mega_hack_pro
 
 # Macros
 
-Sakupen Circles - 76962930 - This is a EXTREME DEMON
+```
+Name - Sakupen Circles
+ID - 76962930
+Diffuculty - This is a EXTREME DEMON
+```
