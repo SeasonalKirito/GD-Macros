@@ -1,7 +1,3 @@
-# Macros
+# Macros Information
 
-```
-Name - Sakupen Circles
-ID - 76962930
-Diffuculty - EXTREME DEMON
-```
+This is where i will be storeing the Macros as you see.
